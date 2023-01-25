@@ -1,1 +1,0 @@
-# 2gyeong.github.io
